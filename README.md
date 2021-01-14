@@ -1,4 +1,4 @@
 **im**: erin<br>
 **pronouns**: she/her<br>
-**student**: computer engineering<br>
-**gamer**: time<br>
+**student**: 🏳️‍⚧️🏳️‍🌈🧪⚙ UW–Madison comp eng, comp sci '23<br>
+**aka**: [@erinzm](https://github.com/erinzm) (used to use a different account professionally)<br>
